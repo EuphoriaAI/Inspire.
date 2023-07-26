@@ -10,3 +10,7 @@ Analysis:
 - [The Cult #48: Tucker Carlson Interviews Andrew Tate (Part 2)](https://youtu.be/iDTGHffoyYk)
 - [Andrew Tate EXPOSED as a lying NARCISSIST pimp as Tucker Carlson covers for him](https://youtu.be/QEuBeggGapI)
 - [More evidence that Andrew Tate is a NARCISSIST from Narcissism expert HG Tudor](https://youtu.be/w94Cs00ZI8E)
+
+## Barbie
+Analysis:
+- [The Cult #50: Why Barbie IS NOT woke](https://youtu.be/n0Q4JV6ihQ4)
