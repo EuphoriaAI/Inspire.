@@ -7,4 +7,4 @@ Tucker Carlson: [Ep. 9  The Andrew Tate interview](https://twitter.com/TuckerCar
 
 Analysis:
 - [The Cult #47: Watching Tucker Carlson's Interview with Andrew Tate (Part 1)](https://youtu.be/qxhmtHHdzxc)
-- [The Cult #48: Tucker Carlson Interviews Andrew Tate (Part 2)]
+- [The Cult #48: Tucker Carlson Interviews Andrew Tate (Part 2)](https://youtu.be/iDTGHffoyYk)
