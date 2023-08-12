@@ -1,1 +1,2 @@
 - [The Issue With Hookup Culture](https://youtu.be/Qx0NsfNqVAo)
+- [This Victorian STD Changed The Covid Response](https://youtu.be/XtwyK0rjh-c)
