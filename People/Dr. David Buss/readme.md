@@ -1,0 +1,1 @@
+- [This happens to the Majority of Women who have Affairs w/ Dr. David Buss](https://youtu.be/iJhuwZixD6o)
