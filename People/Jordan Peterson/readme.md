@@ -1,2 +1,3 @@
 - [The Issue With Hookup Culture](https://youtu.be/Qx0NsfNqVAo)
 - [This Victorian STD Changed The Covid Response](https://youtu.be/XtwyK0rjh-c)
+- [How the Concept of God Shapes Human Worth](https://youtu.be/QpSkdpk4KKE)
